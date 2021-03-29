@@ -1,0 +1,4 @@
+- hi, I’m @notsnail
+- im interested in *soviet-afghan war*
+- im currently learning *how to focus properly*
+- i like making simulations, gpus, and video games
